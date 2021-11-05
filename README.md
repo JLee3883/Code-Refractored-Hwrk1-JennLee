@@ -27,4 +27,4 @@ I concluded by adding the finishing touches and final comment tags so that anyon
 
 # Finished!
 
-All in all, this was frustrating but honestly so fullfilling. The instant joy when a code is worked out or a page is debugged and when your final product is what it should be is so surprising. It's an overwhelming feeling of relief and satisfaction!
+All in all, this was frustrating but honestly so fullfilling. The instant joy when a code is worked out or a page is debugged and when your final product is what it should be is so surprising. It's an overwhelming feeling of relief and satisfaction! I give thanks to all the direction, resources supplied and teamwork involved ❤️️
